@@ -10,3 +10,5 @@ In due course a legend arose of such circumstantiality that the wise historian w
 **Chapter II**
 
 The moral I draw is that the writer should seek his reward in the pleasure of his work and in release from the burden of his thoughts; and, indifferent to aught else, care nothing for praise or censure, failure or success.
+
+**Chapter III**
