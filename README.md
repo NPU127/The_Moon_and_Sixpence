@@ -22,3 +22,16 @@ I despaired of ever expressing myself with such aptness or with such fluency.
 It is sad that I can remember nothing of all this scintillation.
 
 It gave me an intimate sense of being a member of some mythic brotherhood.
+
+**Chapter IV**
+
+Rose Waterford was a cynic. She looked upon life as an opportunity for writing novels and the public as her raw material.
+
+Miss Waterford, torn between the aestheticism of her early youth, when she used to go to parties in sage greeen, holding a daffodil, and the flippancy of her mature years, which tended to high heels and Paris frocks, wore a new hat.
+
+It was chaste, artistic, and dull.
+
+Looking back, I think that Mrs. Strickland was the most harmless of all the lion-hunters that pursue their quarry from the rarified heights of Hampstead to the nethermost studios of Cheyne Walk.
+
+The subject was exhausted, and we began to talk of other things.
+
