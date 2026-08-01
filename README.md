@@ -35,3 +35,12 @@ Looking back, I think that Mrs. Strickland was the most harmless of all the lion
 
 The subject was exhausted, and we began to talk of other things.
 
+**Chapter V**
+
+It is a charming faculty, but one often abused by those who are conscious of its possession: for there is something ghoulish in the avidity with which they will pounce upon the misfortune of their friends so that they may exercise their dexterity.
+
+Milk is very nice, especially with a drop of brandy in it, but the domestic cow is only too glad to be rid of it. A swollen udder is very uncomfortable.
+
+Her hair, thick and dark like her mother's, fell over her shoulders in fine profusion, and she had the same kindly expression and sedate, untroubled eyes.
+
+
