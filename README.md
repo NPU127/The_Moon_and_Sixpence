@@ -43,4 +43,12 @@ Milk is very nice, especially with a drop of brandy in it, but the domestic cow 
 
 Her hair, thick and dark like her mother's, fell over her shoulders in fine profusion, and she had the same kindly expression and sedate, untroubled eyes.
 
+**Chapter VI**
+
+They met with indifference, and would part with relief.
+
+He looked commonplace.
+
+One would admire his excellent qualities, but avoid his company.
+
 
