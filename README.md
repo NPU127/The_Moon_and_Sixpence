@@ -49,6 +49,6 @@ They met with indifference, and would part with relief.
 
 He looked commonplace.
 
-One would admire his excellent qualities, but avoid his company.
+One would admire his excellent qualities, but avoid his company. He was null. He was probably a worthy member of society, a good husband and father, an honest broker; but there was no reason to waste one's time over him.
 
 
