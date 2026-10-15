@@ -51,4 +51,9 @@ He looked commonplace.
 
 One would admire his excellent qualities, but avoid his company. He was null. He was probably a worthy member of society, a good husband and father, an honest broker; but there was no reason to waste one's time over him.
 
+**Chapter VII**
+
+That must be the story of innumberable couples, and the pattern of life it offers has a homely grace.
+
+It reminds you of a placid rivulet, meandering smoothly through green pastures and shaded by pleasant trees, till at last it falls into the vasty sea; but the sea is so calm, so silent, so indifferent, that you are troubled suddenly by a vague uneasiness.
 
