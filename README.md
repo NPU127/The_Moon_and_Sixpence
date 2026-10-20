@@ -57,3 +57,19 @@ That must be the story of innumberable couples, and the pattern of life it offer
 
 It reminds you of a placid rivulet, meandering smoothly through green pastures and shaded by pleasant trees, till at last it falls into the vasty sea; but the sea is so calm, so silent, so indifferent, that you are troubled suddenly by a vague uneasiness.
 
+**Charpter VIII**
+
+As they stand they are like the figures in an old tapestry; they do not separate themselves from the background, and at a distance seem to lose their pattern, so that you have little but a pleasing piece of colour.
+
+It meant that she had heard some scandal about one of her friends, and the instinct of the literary woman was all alert.
+
+With the superciliousness of extreme youth, I put thirty-five as the utmost limit at which a man might fall in love without making a fool of himself.
+
+Her manner suggested to my excited fancy a complete knowledge of the domestic calamity.
+
+It was impossible to keep up our social pretences any longer.
+
+It is always distressing when outraged morality does not possess the strength of arm to administer direct chastisement on the sinner.  
+
+~~I did not then know the besetting sin of woman, the passion to discuss her private affairs with anyone who is willing to listen.~~
+
