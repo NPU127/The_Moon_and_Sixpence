@@ -73,3 +73,7 @@ It is always distressing when outraged morality does not possess the strength of
 
 ~~I did not then know the besetting sin of woman, the passion to discuss her private affairs with anyone who is willing to listen.~~
 
+**Chapter IX**
+
+Since these confidences were thrust on me, I saw no harm in asking a few questions.
+
