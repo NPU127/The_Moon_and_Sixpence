@@ -77,3 +77,24 @@ It is always distressing when outraged morality does not possess the strength of
 
 Since these confidences were thrust on me, I saw no harm in asking a few questions.
 
+**Chapter X**
+
+Her black dress, simple to austerity, suggested her bereaved condition, and I was innocently astonished that notwithstanding a real emotion she was able to dress the part she had to play according to her notions of seemliness.
+
+Mrs. Strickland was the daughter of an Indian civilian, who on his retirement had settled in the depths of the country, but it was his habit every August to take his family to Eastbourne for change of air; and it was here, when she was twenty, that she met Charles Strickland. He was twenty-three. They played tennis together, walked on the front together, listened together to the ... minstrels; ...
+
+My Dear Amy,
+...
+Yours always,
+Charles Strickland.
+
+My husband said he went to the club three or four nights a week to play bridge.
+
+She struggled for self-control, and I saw her hands clench and unclench spasmodically. It was dreadfully painful.
+
+I think she added this to explain her attitude to me, but I thought it was due to a very natural jealousy rather than to maternal solicitude.
+
+It throws a shadow of insincerity over their most deeply felt emotions.
+
+Anger struggled in her breast with misery.
+
