@@ -98,3 +98,17 @@ It throws a shadow of insincerity over their most deeply felt emotions.
 
 Anger struggled in her breast with misery.
 
+**Chapter XI**
+
+I had not yet learnt how contradictory is human nature; I did not know how much pose there is in the sincere, how much baseness in the noble, or how much goodness in the reprobate.
+
+An appeal to the emotions is little likely to be effectual before luncheon.
+
+It was a tall, shabby building, ...
+
+Charles Strickland stood before me. He uttered not a word. He evidently did not know me.
+
+Everything was dirty and shabby.
+
+"I was just going out to have a drink before dinner. You'd better come too. Do you like absinthe?"
+
