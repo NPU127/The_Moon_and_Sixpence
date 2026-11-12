@@ -112,3 +112,23 @@ Everything was dirty and shabby.
 
 "I was just going out to have a drink before dinner. You'd better come too. Do you like absinthe?"
 
+**Chapter XII**
+
+The absinthe came, and with due solemnity we dropped water over the melting sugar.
+
+I glanced at him with surprise. His cordial agreement with all I said cut the ground from under my feet.
+
+I was prepared to be persuasive, touching, and hortatory, admonitory and expostulating, if need be vituperative even, indignant and sarcastic; but what the devil does a mentor do when the sinner makes no bones about confessing his sin?
+
+I liked them all right when they were kids, but now they're growing up I haven't got any particular feeling for them.
+
+His brief answer was so scornful that it made my question, natural though it was, seem absurd. I reflected for a minute or two.
+
+Can the law get blood out of a stone?
+
+But, my dear fellow, I don't care. It doesn't matter a twopenny damn to me one way or the other.
+
+"I want to paint."
+
+You are a most unmitigated cad.
+
